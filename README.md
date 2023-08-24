@@ -1,5 +1,5 @@
-## Hi there 👋  
-   
+## Hi there 👋 | 🚀 Welcome to my digital realm!<br>
+
  ⭐<b>Here are a few things about me:</b>
  
 - Login to the world on 4/13/99 🎂🌏
