@@ -23,8 +23,8 @@
   Mixing ingredients and algorithms with equal zest!</i> 🍰🤖
   <br><br>
 
-- 🔖👉 Connect with me on LinkedIn to explore my professional journey and share insights
+- 🔖👉 Connect with me on [LinkedIn](https://www.linkedin.com/in/himani413/) to explore my professional journey and share insights
 
-- 📸🦋 Join me on Instagram: himani_perera
+- 📸🦋 Join me on Instagram: [himani_perera](https://www.instagram.com/himani_perera/)
 
 - Fun Fact: I turn coffee into code! ☕➡💻
