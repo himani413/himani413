@@ -23,7 +23,9 @@
   Mixing ingredients and algorithms with equal zest!</i> 🍰🤖
   <br><br>
 
-- 🔖👉 Connect with me on [LinkedIn](https://www.linkedin.com/in/himani413/) to explore my professional journey and share insights
+- 🔖👉 Connect with me on [LinkedIn](https://www.linkedin.com/in/himani413/) to explore my professional journey and share insights.
+  
+- 📃✒️ Find me on [Medium](https://medium.com/@pereradinithi99) to read my latest articles.
 
 - 📸🦋 Join me on Instagram: [himani_perera](https://www.instagram.com/himani_perera/)
 
