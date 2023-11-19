@@ -13,8 +13,7 @@
 
 - Seeking exciting opportunities to innovate and create!💡
 
--
- Love to swiftly decode challenges and craft elegant solutions with utmost precision. ✨👁
+- Love to swiftly decode challenges and craft elegant solutions with utmost precision. ✨👁
 
 - Find immense joy and peace in the art of baking..🧁🍪 (with love ❤ )<br>
 
