@@ -5,6 +5,8 @@
 - Login to the world on 4/13/99 🎂🌏
 
 - Enthusiastic software engineering undergrad 🎓📚
+  
+- Software Engineer Intern at LSEG (London Stock Exchange Group) 💻
 
 - Eagerly exploring the world of data science.🔍📊
   <br><br>
