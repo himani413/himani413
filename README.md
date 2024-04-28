@@ -2,7 +2,7 @@
 
  ⭐<b>Here are a few things about me:</b>
  
-- Login to the world on 4/13/99 🎂🌏
+- Login to the world on 4/13 🎂🌏
 
 - Enthusiastic software engineering undergrad 🎓📚
   
